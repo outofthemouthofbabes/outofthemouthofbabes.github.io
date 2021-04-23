@@ -1,4 +1,4 @@
-#23 April 2021: Hearts of the fathers
+# 23 April 2021: Hearts of the fathers
 
 Reading Psalm 3 we get some insight into David's pain when he was fleeing from Absalom, his own son.
 What would make a father fear his own son so much that he would flee? 
