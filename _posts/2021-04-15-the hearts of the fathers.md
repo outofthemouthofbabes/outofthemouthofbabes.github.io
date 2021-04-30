@@ -4,7 +4,7 @@ Reading Psalm 3 we get some insight into David's pain when he was fleeing from A
 What would make a father fear his own son so much that he would flee? 
 What makes a son so angry that he wants to pursue his own father with the plan to harm him?
 
-In the story that precedes this point in Psalm 3 (2 Sam 15) we see lots of brokeness in the behaviour of those involved. 
+In the story that precedes this point in Psalm 3 (2 Sam 13-15) we see lots of brokeness in the behaviour of those involved. 
 We see rape and deceit and unforgiveness. Yet, through it all, a desire for both David, as father, and Absalom, as son, to connect but sin getting in the way and hindering the process.
 First, David shows his desire to reconnect with his son after Absalom kills Amnon (2 Sam 13:39). 
 Then David orders Absalom's return to Jerusalem (2 Sam 14:21) but does not want to see Absalom (2 Sam 14:24).
