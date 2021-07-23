@@ -1,6 +1,6 @@
 # 21 May 2021: The best defence 
 
-I have no clue what is going on with these vaccines! 
+I have no clue what is going on with this pandemic! 
 But what I do know is that God is asking us to have a party!
 He is telling us to rejoice! In Psalm 35 we see David rejoicing (v9) in the Lord's salvation. 
 In v27 David tells those who support his cause to rejoice. In Psalm 63 we see David again praising and rejoicing (v4, 5, 7, 11) in the wilderness. 
